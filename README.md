@@ -1,0 +1,1 @@
+# yazilimmimarisivetasarim_e-ticaret
